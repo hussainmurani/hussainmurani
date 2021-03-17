@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Hussain Murani (@hussainmurani) 
+- 👀 I’m interested in biology, maps, and solutions that enable businesses to accelerate growth. 
+- 🌱 I’m currently learning Spanish, mathematics, Python and to control my pessimism.
+- 💞️ I’m looking to collaborate on anything interesting.
+- 📫 Reach me at hussain.murani@gmail.com
